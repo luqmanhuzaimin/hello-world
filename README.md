@@ -6,4 +6,3 @@ I Live in Gerik, Perak.
 Im curently studying at UNIKL MIIT in KL.
 Im currently taking my FYP1 
 Im so happy!!
-Im so fking happy
